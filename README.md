@@ -1,5 +1,5 @@
 # 💫 About Me:
-📫 How to reach me khushalishaan@gmail.com<br>⚡ Fun fact: i spent 3 years in school learning code then i set it back for a while and now I'm back coding fivem scripts , websites , etc.<br>  ℹ️   info: I'm A passionate frontend and backend developer from America!<br>💬 Ask me about Coding I am a very helpful person , i like helping everyone!<br>👨‍💻 All of my projects are available at discord.gg/ishaanidev<br>⚡ Extras, I Am wanting to become a software engineer and right now my cousin is and I'm working for him!<br>
+📫 How to reach me khushalsilence@gmail.com<br>⚡ Fun fact: i spent 3 years in school learning code then i set it back for a while and now I'm back coding fivem scripts , websites , etc.<br>  ℹ️   info: I'm A passionate frontend and backend developer from America!<br>💬 Ask me about Coding I am a very helpful person , i like helping everyone!<br>👨‍💻 All of my projects are available at discord.gg/ishaanidev<br>⚡ Extras, I Am wanting to become a software engineer and right now my cousin is and I'm working for him!<br>
 
 
 ## 🌐 Socials:
